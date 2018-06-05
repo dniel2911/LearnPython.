@@ -16,4 +16,6 @@ This course will work well if you follow the following points
 If you have any questions, suggestions or want to submit an assignment, I can be reached at *Ethical.Hacker720@gmail.com*
 
 ### Warning
-If you're going to submit an assignment, please don't embed any virus into it. If you do, I will not accept anymore assignments.
+If you're going to submit an assignment, please don't embed any virus into it. If you do, I will not accept anymore assignments...
+
+https://www.youtube.com/channel/UCy99s9RFyOP91wsa1Sso-iw/videos?view_as=subscriber
